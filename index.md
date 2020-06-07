@@ -24,5 +24,3 @@ email [1077022@gmail.com](mailto:1077022@gmail.com)
 
 Nedersticht 34  
 1083 XD Amsterdam
-
-test
