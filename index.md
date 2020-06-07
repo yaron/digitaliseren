@@ -20,7 +20,7 @@ Per dia, foto of negatief 0,35 + 2,50 per order en eventueel kosten SD kaart.
 ## Contact
 J.Tal tel [0622345023](tel:0622345023)
 
-email 1077022@gmail.com
+email [1077022@gmail.com](mailto:1077022@gmail.com)
 
 Nedersticht 34  
 1083 XD Amsterdam
