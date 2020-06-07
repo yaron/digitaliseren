@@ -1,5 +1,3 @@
-## Digitaliseren beeld en geluid
-
 - Super 8/Single 8
 - Super 8/Single 8 met genuid (1 of 2 sporen)
  
