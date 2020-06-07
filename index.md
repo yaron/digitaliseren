@@ -16,3 +16,11 @@ Heeft u nog (oude) foto's, negatieven, dia's en fotoabums? Door dit fotomateriaa
 
 ### Prijzen dia's foto's en negatieven
 Per dia, foto of negatief 0,35 + 2,50 per order en eventueel kosten SD kaart.
+
+## Contact
+J.Tal tel 0622345023
+
+email 1077022@gmail.com
+
+Nedersticht 34  
+1083 XD Amsterdam
