@@ -7,7 +7,7 @@ Ik werk met HD filmscanners, speciaal ontworpen voor het digitaliseren van 8mm. 
 - Spoel 7cm ca. 3.5min 7 euro
 - Spoel 13 cm ca. 14 min 15 euro
 
-De bestanden worden afgeleverd op SD kaart, deze kunt u zelf meeleveren of via ons aanschaffen.
+De bestanden worden afgeleverd op SD kaart, deze kunt u zelf meeleveren of via ons aanschaffen. Bewereken en convertern naar DVD is ook mogelijk.
 
 ## Dia's foto's en negatieven
 Heeft u nog (oude) foto's, negatieven, dia's en fotoabums? Door dit fotomateriaal te laten digitaliseren creëert u direct een veilige back-up van deze dierbare herinneringen. Uw dia's, foto's en negatieven worden professioneel voor u ingescanned.
