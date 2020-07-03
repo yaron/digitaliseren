@@ -25,13 +25,5 @@ email [1077022@gmail.com](mailto:1077022@gmail.com)
 Nedersticht 34  
 1083 XD Amsterdam  
 (na telefonisch overleg )
-<!-- Global site tag (gtag.js) - Google Analytics -->
-<script async src="https://www.googletagmanager.com/gtag/js?id=UA-171559085-1">
-</script>
-<script>
-  window.dataLayer = window.dataLayer || [];
-  function gtag(){dataLayer.push(arguments);}
-  gtag('js', new Date());
 
-  gtag('config', 'UA-171559085-1');
-</script>
+ 
