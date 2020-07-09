@@ -5,7 +5,7 @@ Ik werk met HD filmscanners, speciaal ontworpen voor het digitaliseren van 8mm. 
 
 ### Prijzen 8mm, super 8, dubbel 8 films digitaliseren
 - Spoel 7cm ca. 3.5min   6 euro
-- Spoel 13 cm ca. 14 min 12 euro
+- Spoel 13 cm ca. 14 min 15 euro
 
 ## Video VHS en VHS c( NTSC video, PAL video ) Sony Betamax digitaliseren   12.- per uur
 
