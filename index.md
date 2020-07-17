@@ -7,7 +7,8 @@ Ik werk met HD filmscanners, speciaal ontworpen voor het digitaliseren van 8mm. 
 - Spoel 7cm ca. 3.5min   6 euro
 - Spoel 13 cm ca. 14 min 15 euro
 
-## Video VHS en VHS c( NTSC video, PAL video ) Sony Betamax Video2000 digitaliseren   12.- per uur
+## Video VHS en VHS c( NTSC video, PAL video ) Sony Betamax Video2000 
+digitaliseren   12.- per uur
 
 De bestanden worden afgeleverd op SD kaart, deze kunt u zelf meeleveren of via ons aanschaffen. Bewereken en convertern naar DVD is ook mogelijk.
 
