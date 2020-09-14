@@ -8,7 +8,7 @@ Ik werk met HD/fULL HD filmscanners, speciaal ontworpen voor het digitaliseren v
 - DVD HD      €1.10 per minute + €10.00 per  DVD
 - DVD Full HD €1.25 per minute + €10.00 per  DVD 
 
-## Video VHS en VHS c( NTSC/PAL video ) Sony Betamax Video2000                                                                                                                            digitaliseren   20.- per uur inclusief DVD
+## Video VHS en VHS c( NTSC/PAL video ) Sony Betamax Video2000                                                                                                                                        digitaliseren   20.- per uur inclusief DVD
 
 
 ## Dia's foto's en negatieven
