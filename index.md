@@ -15,7 +15,7 @@ digitaliseren   20.- per uur inclusief DVD
 Heeft u nog (oude) foto's, negatieven, dia's en fotoabums? Door dit fotomateriaal te laten digitaliseren creëert u direct een veilige back-up van deze dierbare herinneringen. Uw dia's, foto's en negatieven worden professioneel voor u ingescanned.
 
 ### Prijzen dia's foto's en negatieven
-Per dia, foto of negatief 0,20 euro + 2,50 per order en eventueel kosten SD kaart.
+Per dia, foto of negatief 0,25 euro (minimaal €10,00 per order) en eventueel kosten SD kaart/USB stick/DVD.
 
 ## Contact
 J.Tal tel [0622345023](tel:0622345023)
