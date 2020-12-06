@@ -3,7 +3,7 @@
  
 Ik werk met HD/fULL HD filmscanners, speciaal ontworpen voor het digitaliseren van 8mm. Er komt dus geen fimplojector aan te pas! Mijn scanner werkt met een LED lichtbron waardoor uw 8mm films niet worden blootgesteld aan een warmtebron. Ook wordt uw film door een tandloos mechaniek naar de camera geleid. Hierdoor kunnen uw films geen schade oplopen tijdens het scannen. Indien u geluidfilms heeft, wordt het geluid ook meegescand, hiervoor zijn extra kosten (geluid loopt dan niet volledig sincron) .
 ### Prijzen 8mm, super 8, dubbel 8 films digitaliseren
-- Op SD/USB stick/DVD       €0.60 per minute  (minimaal €15.00 per order)
+- Op SD/USB stick/DVD       €0.75 per minute  (minimaal €15.00 per order)
 - 
 ## Video VHS en VHS c( NTSC/PAL video ) Sony Betamax Video2000                                                                                                                                        
 digitaliseren   20.- per uur inclusief DVD
