@@ -6,14 +6,14 @@ Ik werk met HD/fULL HD filmscanners, speciaal ontworpen voor het digitaliseren v
 - Op SD/USB stick/DVD       €0.75 per minute  (minimaal €15.00 per order)
 - 
 ## Video VHS en VHS c( NTSC/PAL video ) Sony Betamax Video2000                                                                                                                                       
-digitaliseren   20.- per uur inclusief DVD
+digitaliseren   20.- per uur inclusief DVD ( minimaal €15.- per order)
 
 ## Dia's foto's en negatieven
 
 Heeft u nog (oude) foto's, negatieven, dia's en fotoabums? Door dit fotomateriaal te laten digitaliseren creëert u direct een veilige back-up van deze dierbare herinneringen. Uw dia's, foto's en negatieven worden professioneel voor u ingescanned.
 
 ## Audio reel to reel of cassetetebandjes 
-€18.- per uur (minimaal €15.- per order
+€18.- per uur (minimaal €15.- per order)
 
 ### Prijzen dia's foto's en negatieven
 Per dia, foto of negatief 0,25 euro (minimaal €10,00 per order) en eventueel kosten SD kaart/USB stick/DVD.
