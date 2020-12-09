@@ -6,7 +6,7 @@ Ik werk met HD/fULL HD filmscanners, speciaal ontworpen voor het digitaliseren v
 - Op SD/USB stick/DVD       €0.75 per minute  (minimaal €15.00 per order)
 - 
 ## Video VHS en VHS c( NTSC/PAL video ) Sony Betamax Video2000                                                                                                                                       
-digitaliseren   20.- per uur inclusief DVD ( minimaal €15.- per order)
+digitaliseren   20.- per band inclusief DVD
 
 ## Dia's foto's en negatieven
 
