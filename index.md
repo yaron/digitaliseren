@@ -5,7 +5,7 @@ Ik werk met HD/fULL HD filmscanners, speciaal ontworpen voor het digitaliseren v
 ### Prijzen 8mm, super 8, dubbel 8 films digitaliseren
 - Op SD/USB stick/DVD       €0.75 per minute  (minimaal €15.00 per order)
 - 
-## Video VHS en VHS c( NTSC/PAL video ) Sony Betamax Video2000                                                                                                                                       
+## Video VHS en VHSc( NTSC/PAL video ) Sony Betamax Video2000                                                                                                                                       
 digitaliseren   20.- per band inclusief DVD
 
 ## Dia's foto's en negatieven
