@@ -13,7 +13,7 @@ digitaliseren   20.- per band inclusief DVD
 Heeft u nog (oude) foto's, negatieven, dia's en fotoabums? Door dit fotomateriaal te laten digitaliseren creëert u direct een veilige back-up van deze dierbare herinneringen. Uw dia's, foto's en negatieven worden professioneel voor u ingescanned.
 
 ## Audio reel to reel of cassetetebandjes 
-€18.- per uur (minimaal €15.- per order)
+€18.- per band 
 
 ### Prijzen dia's foto's en negatieven
 Per dia, foto of negatief 0,25 euro (minimaal €10,00 per order) en eventueel kosten SD kaart/USB stick/DVD.
