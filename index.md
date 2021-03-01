@@ -1,4 +1,4 @@
-- Film 8 mm/super 8 mm
+- <script data-ad-client="ca-pub-9783911915751906" async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>Film 8 mm/super 8 mm
 - Film 8 mm/super 8 mm met geluid 
  
 Ik werk met HD/fULL HD filmscanners, speciaal ontworpen voor het digitaliseren van 8mm. Er komt dus geen fimplojector aan te pas! Mijn scanner werkt met een LED lichtbron waardoor uw 8mm films niet worden blootgesteld aan een warmtebron. Ook wordt uw film door een tandloos mechaniek naar de camera geleid. Hierdoor kunnen uw films geen schade oplopen tijdens het scannen. Indien u geluidfilms heeft, wordt het geluid ook meegescand, hiervoor zijn extra kosten (geluid loopt dan niet volledig synchroon) .
